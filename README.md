@@ -68,7 +68,7 @@ My work focuses on finding actionable insights, improving performance metrics, a
 📍 India (Open to Remote Roles)  
 💼 [LinkedIn](https://www.linkedin.com/in/akshita-johari-5b8a9b157/)  
 📧 akshita.johari97@gmail.com  
-🌐 [akshitajohari.github.io](#)
+🌐 [akshitajohari.github.io](https://github.com/akkujohari12/akshitajohari.github.io)
 
 ---
 
